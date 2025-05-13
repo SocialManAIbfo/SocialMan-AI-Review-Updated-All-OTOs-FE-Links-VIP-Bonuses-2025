@@ -1,1 +1,1 @@
-# SocialMan-AI-Review-Updated-All-OTOs-FE-Links-VIP-Bonuses-2025
+# SocialMan AI Review Updated All OTOs FE Links, VIP Bonuses 2025
